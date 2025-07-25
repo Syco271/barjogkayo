@@ -1,1 +1,4 @@
 # barjogkayo
+
+BADING KAYO 
+MULTOHIN KAYO NI CARMINA
